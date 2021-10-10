@@ -1,0 +1,2 @@
+# UNIPAY
+UNIPAY or UPI, The utility Token of the native network of Unipay will soon capture the trust value of the growing crypto user base . As blockchain technology for payment systems and in many other forms of E-commercials will create a more secure , efficient , transparent and more reliable way of transactions without the help of any other 3rd party involvements. Users can stake their $UPI to earn a passive income and also rewarded for spending their $UPI .
